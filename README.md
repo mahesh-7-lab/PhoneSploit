@@ -1,2 +1,3 @@
-#Subscribe RANDI OLOYY
 
+
+#info tech
